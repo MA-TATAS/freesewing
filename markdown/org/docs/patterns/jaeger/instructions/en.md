@@ -315,7 +315,7 @@ Add the sleeves lining to the sleeves split
 Make sure the collars are straight on top of each other (they allign) and add the seam allowences to each other by hand.
 Add in a few places front SA to lining SA by hand from the inside of the jacket
 Create the backsplit and manually add the lining to the main fabric
-Add buttonholes and buttons
+Add buttonholes and buttons.
 
 
 
